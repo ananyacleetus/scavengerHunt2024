@@ -8,7 +8,7 @@ You may be directed to random spots around the city and/or apartment but I'll be
 
 Please don't cheatttt
 
-I love you so much, Bubby <3 Happy Valentine's Day!
+I love you so much, Bubby ♥♥ Happy Valentine's Day!
 
 --------------------------------------------------------------
 

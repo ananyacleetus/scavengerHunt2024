@@ -10,5 +10,9 @@ Please don't cheatttt
 
 I love you so much, Bubby <3 Happy Valentine's Day!
 
+--------------------------------------------------------------
+
+Now go to <> for the first clue!
+
 
 

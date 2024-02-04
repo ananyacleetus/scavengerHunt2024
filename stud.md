@@ -1,4 +1,4 @@
-# Clue 2
+# Clue #2
 
 Congrats! You proved you're a "stud" and made it to the second clue
 

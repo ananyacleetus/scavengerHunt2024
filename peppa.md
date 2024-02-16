@@ -6,4 +6,4 @@ It'll all make sense when you get there I promise.
 
 Head to Ander North, and check the top of the blinds in the yoga/dance room
 
-Your travel song is [this](https://open.spotify.com/track/7vidktgNZFQylTgH1GEnMs?si=6fe80d93f6874507) 
+Your travel song is [this](https://open.spotify.com/track/4jacsL77ZYnpInmTtUBaJW?si=-wXP2aycSUejgfvSSdPvsg)

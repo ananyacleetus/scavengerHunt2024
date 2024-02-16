@@ -1,9 +1,9 @@
 # Clue #8
 
-This clue is a bit unique because you need to head to this location alone, without Ananya
+This clue is a bit unique because you need to head to this location alone, without Ananya or Nemo (or Shyam??)
 
 It'll all make sense when you get there I promise. 
 
-Head to: 
+Head to Ander North, and check the kitchen freezer
 
-Your travel song is: 
+Your travel song is [this](https://open.spotify.com/track/7vidktgNZFQylTgH1GEnMs?si=6fe80d93f6874507) 
